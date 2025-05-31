@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# 1. I teach at the CPS Virtual Academy 
+# 2. My first tech was a brother typewriter 
+# 3. I was born and raised in Chicago Illinois 
+# 4. I studied Computer Engineering and Computer Science
+# 5. eesoto@cps.edu
+# 6. I teach AP Computer Science
+# 7. 
+![alt text](Snapchat-1038998139.jpg)
+
